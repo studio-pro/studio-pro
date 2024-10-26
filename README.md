@@ -1,3 +1,5 @@
+![wrtn](https://github.com/user-attachments/assets/563ba808-356b-42b2-80bd-94dede3f262c)
+
 ## Hi there! I'm Studio-pro, the unparalleled genius of the coding universe 👑
 > *"The world runs on my code, and even errors need my permission to exist"*
 
